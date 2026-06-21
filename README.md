@@ -1,4 +1,4 @@
-# more about me
+# more about me <img src="http://dl3.glitter-graphics.net/pub/369/369313jualw8et5s.gif" width=50 height=50 border=0></a>
 <img src="http://dl10.glitter-graphics.net/pub/473/473860u31n2v2695.gif" width=568 height=40 border=0></a><br>
 <br> hi im gigglemut ! u can nickname me mut or use my irl name kyle or anything <img src="http://dl10.glitter-graphics.net/pub/369/369220a3hjk9pcg9.gif" width=50 height=50 border=0></a>
 <br><br>
@@ -9,4 +9,4 @@ i dont like being alone, mocked , or being left out , i can sometimes be sensiti
 yes i listen to music , of course?!?! but if you want to know what i listen to [sometimes just random stuff] i listen to Machine Girl , Green Day, Weezer , Alex G , System Of a Down , and iruka no yemede sayonara , AND many,, many more ! <img src="http://dl7.glitter-graphics.net/pub/687/687657tjeez4a46v.gif" width=50 height=50 border=0></a>
 <br><br> 
 
-i dunno what to say anymore so heres some stickers i like looking at,,mm
+i dunno what to say anymore so goodby , ok?ok
