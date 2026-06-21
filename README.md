@@ -6,4 +6,4 @@
 i dont like being alone, mocked , or being left out , i can sometimes be sensitive or just straight up crying or angry for no reason brah <img src="http://dl6.glitter-graphics.net/pub/369/369176i664wis02c.gif" width=50 height=50 border=0></a> 
 <br><br> 
 
-yes i listen to music , of course?!?! <img src="http://dl7.glitter-graphics.net/pub/687/687657tjeez4a46v.gif" width=50 height=50 border=0></a> but if you want to know what i listen to [sometimes just random ass songs] i listen to Machine Girl , Green Day, Weezer , Alex G , System Of a Down , and iruka no yemede sayonara , AND many,, many more ! 
+yes i listen to music , of course?!?! but if you want to know what i listen to [sometimes just random stuff] <img src="http://dl7.glitter-graphics.net/pub/687/687657tjeez4a46v.gif" width=50 height=50 border=0></a> i listen to Machine Girl , Green Day, Weezer , Alex G , System Of a Down , and iruka no yemede sayonara , AND many,, many more ! 
